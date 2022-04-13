@@ -37,3 +37,9 @@ Meditation can help one to learn how to recognize addiction.
 
 Do *these* things, *this* will happen.
 
+Awareness of the passage of time
+- exactly how long is 1 second? How long is 10 seconds?
+- meditation, mindfulness, Buddhism, capricious nature of mind
+
+All the way up to 24 hour silent fast
+
