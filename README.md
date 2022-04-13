@@ -12,7 +12,6 @@ Most tasks are completed within short time frames
 
 Rapid cycling between tasks as a means of immediately dealing with jumpy mind
 
-
 Physical - push-ups, get up and stretch, walk from one end of space to another
 
 Relationship between dopamine and ADHD
@@ -22,3 +21,19 @@ Engage another sense - essential oils
 I have HORRIBLE ADHD. But I was able to make head way by starting "rapid" cycling therapy to train my mind/brain between different states.
 - FOCUS and INATTENTION
 - 
+
+Sleep and good physical health is **extremely** important.
+- food
+- exercise
+
+Pomodoro device - simple time keeping device
+- hardware: better if software tends to distract
+- software: more convenient, "all in one" device, but the downside is that you may get distracted
+
+ADHD and dopamine addiction is getting to be a major problem to the point of endangering a large number of people's livelihoods and lives
+- depression
+
+Meditation can help one to learn how to recognize addiction.
+
+Do *these* things, *this* will happen.
+
